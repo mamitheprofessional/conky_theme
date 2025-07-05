@@ -1,1 +1,2 @@
-![i_use_arch_btw](https://github.com/user-attachments/assets/d45a0e29-bf5c-46d3-8d08-5b888ed836a5)
+![dsa](https://github.com/user-attachments/assets/6e279258-facf-4380-9a70-dd6057a6d7ee)
+![asd](https://github.com/user-attachments/assets/22852ff0-411b-40a8-97a1-9d553787646b)
